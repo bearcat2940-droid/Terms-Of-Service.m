@@ -1,4 +1,4 @@
-# Terms-Of-Service.m 
+# Terms-Of-Service.
 Terms of Service
 
 Alaska State | Official
